@@ -1,0 +1,1 @@
+# Code-Wars-All-None-Any
